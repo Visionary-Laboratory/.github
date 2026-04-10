@@ -1,3 +1,3 @@
-🔥 We are looking for PhD students (26普博、27直博以及欢迎有创智、中关村、河套学院名额的学生联系) and RAs!  
+🔥 We are looking for PhD students (27保研直博以及欢迎有创智、中关村、河套学院名额的学生联系) and RAs!  
 :point_right: If you are interested, please email us with with your CV and a brief description of your research interests:
-zzh.tech [at] gmail.com
+zhongzhihang [at] sjtu.edu.cn
